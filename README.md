@@ -1,1 +1,1 @@
-# botswana
+https://onetribeyoyo.github.io/botswana/
